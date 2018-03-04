@@ -1,1 +1,1 @@
-# artmd.github.io
+# ART MAGIC
